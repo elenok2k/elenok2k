@@ -2,7 +2,7 @@
 
 # Hi, I'm  ELENA👋
 
-### Aspiring Data Analyst from Latvia 🇱🇻
+### Aspiring Data Analyst from Russia
 
 <br>
 
